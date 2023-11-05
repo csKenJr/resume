@@ -1,2 +1,0 @@
-# resume
-Latest Resume
